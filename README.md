@@ -21,7 +21,7 @@ Here's a list of things I currently keep myself busy with:
 
 Feel free to reach out to me on LinkedIn.
 
-- LinkedIn: linkedin.com/in/adomi-lucas-6b42a3194
+- LinkedIn: https://linkedin.com/in/adomi-lucas-6b42a3194
 - Email: lucasadomi@gmail.com
 
 
